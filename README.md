@@ -1,1 +1,2 @@
 # Loty-kosmiczne-i-kolonizacja-kosmosu-jaka-b-dzie.-
+Napewno loty kosmiczne będą oparte o napęd worp driav i prędkości FTL i kolonizacje kosmosu za pomocą radio drukarek kwantowych 5G internetu rzeczy Lot bez zamrażania ludzi na staku kosmicznym z sztuczną grawitacją i polem siłowym woku staktu kosmicznego. Loty będą trwały na marasa godziny czy minuty nie lata czy miesiące a godziny i minuty z prędkością FTL. 
